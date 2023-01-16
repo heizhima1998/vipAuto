@@ -1,6 +1,8 @@
 Continuous monthly membership automatic renewal service agreement
+
 【Precautions】
-You are welcome to use and accept the membership automatic renewal service (hereinafter referred to as "automatic renewal service") provided by [American Drama TV] (hereinafter referred to as "this application").
+
+You are welcome to use and accept the membership automatic renewal service (hereinafter referred to as "automatic renewal service") provided by [Movie Poster] (hereinafter referred to as "this application").
 
 Before activating the automatic renewal service, please be sure to carefully read the "Membership Automatic Renewal Service Agreement" (hereinafter referred to as "this agreement") and fully understand the contents of each clause, especially the exemption or restriction that reminds you to read in bold terms of liability.
 
